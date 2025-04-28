@@ -81,4 +81,4 @@ My Proficient Skills:
 - Email: [andy101692@outlook.com](mailto:andy101692@outlook.com)
 - Skype: [Skype Profile](https://join.skype.com/invite/yDgGexk2YtEm)
 - Discord: [Discord Server](https://discord.gg/QD9bQwFU)
-- Telegram: [Telegram Server](@hiccup1016)
+- Telegram: [Telegram Server](@nightfuryhiccup)
